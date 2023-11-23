@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @paperblock01
+- 👀 I’m interested in ... Programming, Coding, Cybersecurity, Ethical Hacking, Digital Forensics, Graphic Design, Science, Ur Mom
+- 🌱 I’m currently learning ... Stuff
+- 💞️ I’m looking to collaborate on ... Nothing
+- 📫 How to reach me ... Don't
