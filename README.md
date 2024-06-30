@@ -1,2 +1,2 @@
-Fuck Microsoft, and Fuck Github
+🖕 Microsoft
 https://gitlab.com/paperblock01
