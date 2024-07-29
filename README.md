@@ -1,2 +1,1 @@
-🖕 Microsoft
-https://gitlab.com/paperblock01
+Idk what to put lmao
